@@ -1,4 +1,4 @@
 [
-![a](https://user-images.githubusercontent.com/52860492/62006704-0f0a5400-b13c-11e9-847f-82d12e0a8a6e.png)
+![a](ttps://user-images.githubusercontent.com/52860492/62050350-f9af2b80-b208-11e9-8c02-df3ba2887a70.png)
 )
 ](https://newsmania.club/?p=22)
